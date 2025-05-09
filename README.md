@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything.
 - 📫 How to reach me: emme4090@gmail.com
 - 😄 Pronouns: 2 people r on this account: She/Her or He/him
-- ⚡ Fun fact: Call the Girl Ella and the Boy Dylan. i am ella and will be posting more frequently.
+- ⚡ Fun fact: I like Cats
 
 <!---
 mullet860/mullet860 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
